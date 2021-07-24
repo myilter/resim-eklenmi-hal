@@ -1,0 +1,1 @@
+# resim-eklenmi-hal
